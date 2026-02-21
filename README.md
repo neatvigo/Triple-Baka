@@ -1,1 +1,1 @@
-Hi this is a project for tthe triple baka hq on thirdplacemc
+Hi this is a project for the triple baka hq on thirdplacemc
